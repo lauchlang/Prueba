@@ -1,5 +1,5 @@
 # Autoría
-Laura María Guerrero Fernández
+Laura 
 # Área
 Derecho para la Inserción Laboral
 # Tema
